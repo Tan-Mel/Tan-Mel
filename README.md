@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tan-Mel
+- 👋 Hi, I’m @Tanishka Chakraborty
 - 👀 I’m interested in nature and music.
 - 🌱 I’m currently learning Python.
 - 😄 Pronouns: She, her
