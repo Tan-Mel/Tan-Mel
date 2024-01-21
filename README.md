@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tan_Mel
 - 👀 I’m interested in nature and music.
-- 🌱 I’m currently learning Python.
+- 🌱 I’m currently learning how to be focused and be a better version of myself.
 - 😄 Pronouns: She, her
 - ⚡ Fun fact: i love reading and listening to music.
 
